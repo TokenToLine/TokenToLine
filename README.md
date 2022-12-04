@@ -9,10 +9,17 @@ Besides all this, our token is also linked to BNB. This ensures that if bnb rise
 <https://tokentoline.com>
 
 ##### Our website
+Discord:
 <https://discord.com/invite/2uNs2HCV7w>
 
-<https://www.instagram.com/tokentoline>
-
+Twitter
 <https://twitter.com/tokentoline>
 
+Instagram
+<https://www.instagram.com/tokentoline>
+
+Youtube
+<https://www.youtube.com/@TokenToLine>
+
+Reddit
 <https://www.reddit.com/user/tokentoline>
